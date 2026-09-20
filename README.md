@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COQG890203MSRRRD01
+COQG890203MSRRRD01
